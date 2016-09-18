@@ -6,4 +6,6 @@ The sky is yellow
 
 My roommate is a potato
 
-Shit is real
+Sh*t is real
+
+Dream is sad
